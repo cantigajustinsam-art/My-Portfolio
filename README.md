@@ -3,8 +3,11 @@
  
  **This is my Hubbies**
 <details>
+
 - Ilove drinking coffe
+
 - I often played guitar in my free time
+
 - jackcool👅
 
 

@@ -20,7 +20,11 @@
 
  <details>
 <summary><b>View Acheivements></summary>
- Top 1 Global Harley [Sabahay lang namin]
- - I have a lot of work experience 
+ 
+Top 1 Global Harley [Sabahay lang namin]
+ 
+- I have a lot of work experience 
+
 - may sariling lupa [sa kuku]
+
  </details>

@@ -1,2 +1,2 @@
 # **My portfolio**
-## *Justin Sam G. Cantiga. * ##
+## Justin Sam G. Cantiga.  ##

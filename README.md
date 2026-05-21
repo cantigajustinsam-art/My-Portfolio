@@ -19,5 +19,8 @@
  and I am 21 years old and I currently studying in Full Bright college course of Information Technology
 
  <details>
-<summary><b>View Acheivementsb></summary>
+<summary><b>View Acheivements></summary>
+ Top 1 Global Harley [Sabahay lang namin]
+ - I have a lot of work experience 
+- may sariling lupa [sa kuku]
  </details>

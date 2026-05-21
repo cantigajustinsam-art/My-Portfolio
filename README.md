@@ -1,3 +1,2 @@
 # **My portfolio**
-# This is our project in Cprog2
-- [link in canva](
+## *Justin Sam G. Cantiga. * ##

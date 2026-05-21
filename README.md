@@ -21,7 +21,8 @@
  <details>
 <summary><b>View Acheivements></summary>
  
-Top 1 Global Harley [Sabahay lang namin]
+
+- Top 1 Global Harley [Sabahay lang namin]
  
 - I have a lot of work experience 
 

@@ -8,7 +8,6 @@
 
 - I often played guitar in my free time
 
-- jackcool👅
 
 
   
